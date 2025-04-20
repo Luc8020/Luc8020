@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on !(Dayquest)[https://dayquest.de]<br>🌍 Location: Germany<br>👨 Age: 15yo<br>💬 Ask me about anything<br>
+🔭 I’m currently working on Dayquest https://dayquest.de <br>🌍 Location: Germany<br>👨 Age: 15yo<br>💬 Ask me about anything<br>
 
 
 ## 🌐 Socials:
